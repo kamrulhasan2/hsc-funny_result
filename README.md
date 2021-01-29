@@ -1,0 +1,1 @@
+# hsc-funny_result
